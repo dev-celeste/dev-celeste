@@ -14,6 +14,3 @@ When I'm not coding, you'll probably find me brainstorming the next big idea, at
 ---
 
 *Let’s build something awesome together!* 💻🌟
-
-![ascii-art](https://github.com/user-attachments/assets/89922836-e742-489e-8921-05838b55131c)
-
