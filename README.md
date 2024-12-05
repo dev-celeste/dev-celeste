@@ -13,4 +13,4 @@ When I'm not coding, you'll probably find me brainstorming the next big idea, at
 
 ---
 
-*Let’s build something awesome together!* 💻🌟 
+*Let’s build something awesome together!* 💻🌟
